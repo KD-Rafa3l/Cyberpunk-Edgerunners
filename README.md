@@ -1,4 +1,4 @@
-**Cyberpunk: Edgerunners
+# **Cyberpunk: Edgerunners**
 
 El concepto de Cyberpunk: Edgerunners es una de las series las cuales me han llegado atrapar
 no solo gracias a su desarollo con respecto a la trama, sino todo el concepto el cual trata de dar
